@@ -51,3 +51,7 @@
 
 
 ## OUTPUT:
+
+<img width="1587" height="2245" alt="Dark Blue Yellow We Are Hiring Job Vacancy Poster" src="https://github.com/user-attachments/assets/9902e24f-4594-4c65-b7b4-4fcb5d6d12c7" />
+
+
